@@ -1,1 +1,0 @@
-# projekt_hw_2.github.io
